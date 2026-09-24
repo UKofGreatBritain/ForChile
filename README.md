@@ -46,3 +46,20 @@
 </br>
 
  $${\color{#51a6f0} ⋆౨ৎ˚⟡˖ ࣪ }$$
+
+</br>
+<p align="center">
+𝘈𝘯𝘺𝘸𝘢𝘺𝘺,,,, 𝘛𝘩𝘢𝘯𝘬𝘴 𝘧𝘰𝘳 𝘳𝘦𝘢𝘥𝘪𝘯𝘨 𝘢𝘭𝘭 𝘵𝘩𝘪𝘴 𝘺𝘢𝘱𝘱𝘢𝘵𝘳𝘰𝘯 𝘢𝘯𝘥 𝘪 𝘩𝘰𝘱𝘦 𝘸𝘦 𝘨𝘦𝘵 𝘢𝘭𝘰𝘯𝘨!
+</br>
+</br>
+
+  $${\color{#51a6f0} •¨•.¸¸☆* }$$
+
+</br>
+  <img src="https://github.com/user-attachments/assets/5fa8b272-bcd2-4da2-a68a-18446c06758c" width="100%" />
+  </br>
+  <img src="https://github.com/user-attachments/assets/37fae787-3d58-40df-8c7c-9fb646f1559a" width="100%" />
+  </br>
+  <img src="https://github.com/user-attachments/assets/d59faca1-69fd-4351-b3ba-b249824ab37d" width="100%" />
+</p>
+</p>
